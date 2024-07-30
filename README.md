@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil 💗
 
-Meu nome é Luiza 
+Me chamo Luiza :)
 
 ### Você entra em contato comigo 📫
 
